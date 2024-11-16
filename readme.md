@@ -35,4 +35,19 @@ UDP — это менее затратный способ передачи да�
 
 ### 7
 
+![Screenshot from 2024-11-16 12-05-37](https://github.com/user-attachments/assets/aba9ae9d-82e5-4b3e-a510-085fa5d546e0)
+
+
+### 8
+
+
+
+
+
+![Screenshot from 2024-11-16 12-11-18](https://github.com/user-attachments/assets/28261d30-7764-4dbd-85c5-bf4887b4b7d1)
+
+
+### 9 
+
+![Screenshot from 2024-11-16 14-30-44](https://github.com/user-attachments/assets/5ca69250-c12a-4832-88be-376896bacefb)
 
